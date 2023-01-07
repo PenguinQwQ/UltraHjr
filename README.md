@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @UltraHjr You can call me Steve hjr.
+- 👋 Hi, I’m @Flying_Penguin You can call me Steve hjr.
 - 👀 I'm now an undergraduate student of Nanjing University in China, living in Nanjing now. 
 - 🌱 Majoring in Computer Science.
 - 💞️ You can reach me through my phone number:(+86)17616212590, my QQ number:2390766703 or my e-mail:hjrxfly@163.com 
